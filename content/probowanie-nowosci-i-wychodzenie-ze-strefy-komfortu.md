@@ -2,7 +2,7 @@
 title="Próbowanie nowości i wychodzenie ze strefy komfortu. "
 description="lubie kotki xd"
 date=2023-08-27
-draft=false
+draft=true
 +++
 
 Cześć wszystkim!
