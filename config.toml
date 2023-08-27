@@ -68,9 +68,7 @@ active=true
 text_snippet=""
 
 # Author card
-author_bio = "Me życiowe rozterki
-
-I try to understand my life, feelings and emotions"
+author_bio = "Me życiowe rozterki. I try to understand my life, feelings and emotions"
 author_avatar = "avatar.png"
 
 # Include search bar
