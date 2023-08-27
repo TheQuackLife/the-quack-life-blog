@@ -2,7 +2,7 @@
 title="Przyjaźnie"
 description="Jak angażować się w znajomość i jak sprawić, byśmy czuli się w relacji chciani, wysłuchani i kochani? W tym wpisie opowiem o moich refleksjach dotyczących przyjaźni. Poruszę takie zagadnienia jak to, czym jest dla mnie relacja przyjacielska, jakie są moje red flags, jak stworzyć zdrową i wspierającą relację, oraz dlaczego nie powinniśmy uzależniać swojego szczęścia od drugiej osoby? Zapraszam :)"
 date=2023-08-27
-draft=true
+draft=false
 +++
 
 
