@@ -38,7 +38,9 @@ hamburger_menu = true
 # Menu items to display. You define a url and the name of the menu item.
 # NOTE: `$BASE_URL/` must be included in the url name.
 main_menu = [
+              {url="/", name="Home"},
               {url="/o-mnie", name="O mnie"},
+              {url="/kontakt", name="Kontakt"},
 ]
 
 # Footer

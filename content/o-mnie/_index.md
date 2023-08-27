@@ -1,6 +1,6 @@
 +++
 title = "O mnie"
-path = "about"
+path = "o-mnie"
 
 [extra]
 date = 2019-03-21
