@@ -22,7 +22,7 @@ grid_size = "grid-lg"
 katex = true
 
 # Default author for articles
-author = "Goha"
+author = "Gosia"
 
 show_author = true
 show_tags = true
