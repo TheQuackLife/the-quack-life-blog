@@ -6,4 +6,9 @@ path = "kontakt"
 date = 2019-03-21
 +++
 
-KONTAKTUJCIE SIE ZE MNA
+Jeśli masz jakiekolwiek uwagi, spostrzeżenia, myśli, czy odczucia byłoby mi bardzo miło 
+gdybyś podzielił się nimi ze mną w wiadomości na instagramie lub w e-mailu :)
+
+Instagram: the.quacklife
+
+E-mail: duck.duckling2137@gmail.com
