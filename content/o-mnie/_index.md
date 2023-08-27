@@ -3,7 +3,7 @@ title = "O mnie"
 path = "o-mnie"
 
 [extra]
-date = 2019-03-21
+date = 2023-08-27
 +++
 
 Hej! Nazywam się Gosia i jestem uczennicą liceum.
