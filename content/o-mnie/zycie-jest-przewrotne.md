@@ -1,0 +1,58 @@
++++
+title="Życie jest przewrotne..."
+description="O tym, jak niespodziewanie nasze życie może zmienić się o 180 stopni i jak bardzo ważna jest wdzięczność za to, co mamy. Opowiem Wam o moich spostrzeżeniach oraz emocjach, które w tej chwili przeżywam. Zapraszam :)"
+"
+date=2023-08-29
+draft=false
++++
+
+
+Cześć wszystkim! 
+W dzisiejszym wpisie chciałabym opowiedzieć Wam o tym, jak nagle moja codzienność, rutyna, spokój, zmieniły się w ból, uczucie przygnębienia i bycia niewystarczającą. Zapraszam.
+
+Moje wakacje trwały w najlepsze. I nadal trwają. Zostało mi 8 dni wakacji i chciałam wykorzystać je jak najlepiej. Zaczęłam pisać intencje na nowy rok szkolny. Znalazły się tam takie hasła jak spotkania ze znajomymi, mówienie “tak” na wychodzenie ze swojej strefy komfortu, zgłaszanie się na lekcji nawet jeśli nie jestem pewna odpowiedzi i może będzie ona błędna, przeznaczenie więcej czasu na swój dobrobyt i kontakty z rówieśnikami niż na naukę i obowiązki. Zaplanowałam starannie ostatni tydzień wakacji. Wyjazd do Gdańska i zwiedzanie nowych miejsc, spotkanie z przyjaciółką, wypad na zakupy ubraniowe, wyjazd nad morze i wiele innych nieco mniej spektakularnych rzeczy. Byłam tak bardzo szczęśliwa i wreszcie pozytywnie nastawiona. 
+
+Jednak jak wiadomo, życie bywa niesamowicie przewrotne i tajemnicze. Zaraz moje wszystkie plany miały po prostu rozpłynąć się w powietrzu. 
+I stało się, miałam wypadek w sobotę, 26 sierpnia. Diagnoza- złamanie kości krzyżowej. Proces leczenia- ograniczony ruch, raczej pozycja leżąca, poruszanie się jedynie o kulach w razie potrzeby i rezygnacja z jakiejkolwiek aktywności fizycznej. Ból sprawia mi siedzenie, wstawanie,  chodzenie, leżenie. Wszystko. Nie jestem w stanie wejść po schodach, czy przygotować sobie posiłku. Potrzebuję pomocy drugiej osoby i nie jestem już samodzielna. 
+Zauważyłam, że po takich wypadkach jeszcze bardziej doceniam fakt, że mogę chodzić, siedzieć, leżeć, ćwiczyć. Zawsze noszę w sobie wdzięczność, lecz spodziewam się, że po rehabilitacji będzie jej o wiele wiele więcej. 
+
+
+Cóż, sytuacja dla mnie jest tragiczna. Może niektórzy z Was sądzą, że to nie jest koniec świata, bo niektórzy mają gorzej, ludzie codziennie umierają w wypadkach samochodowych, a ja przecież nadal żyje. Ja jednak nie będę umniejszać swojemu cierpieniu i mówię, że jest to dla mnie cholernie ciężkie. 
+Naprawdę moje wszystkie zajęcia zrobiły wielkiego fikołka. Rzeczy które najbardziej kocham robić- spacery, treningi, jazda na rowerze, wyjazdy, pieczenie i gotowanie. To wszystko jest mi niejako zabrane i nie mam możliwości robienia tego co kocham. 
+Czuję się niewystarczająca, bo ciągle leżę w łóżku i nie robię nic, co uważałam zawsze za “produktywne”. Zawsze produktywność dla mnie wiązała się z aktywnością fizyczną, pracą czy wyjazdem. Teraz gdy utknęłam w czterech ścianach ciągle towarzyszą mi myśli: “nic nie robisz, jesteś taka leniwa, po co w ogóle masz tu być skoro i tak nic nie robisz”. 
+Wpadłam w dołek i poczucie beznadziejności. Bo nic nie robię i nic nie mogę. Po co to wszystko. Po co. 
+
+
+Chyba najtrudniejszym aspektem jest teraz dla mnie spożywanie posiłków, gdy się nie ruszam praktycznie wcale nie odczuwam głodu. Tak więc w moim życiu pojawiły się komplikacje. 
+Pierwszy dzień był czasem, w którym obwiniałam w głowie siebie i innych o to co się stało. Byłam przybita i nie widziałam sensu w niczym. Po co jeść, po co spać, po co żyć skoro nie mogę się ruszać. 
+Kolejnego dnia zaczęłam analizować moje myśli. I oto do czego doszłam. 
+Moja relacja z aktywnością fizyczną nie jest uzdrowiona. Nie wiem czy wspominałam o tym w poprzednim poście, ale zmagam się z zaburzeniami odżywiania i próbuję naprawić moją relację z aktywnością fizyczną, aby nie wykonywać jej z powinności, lecz z ochoty. Tak więc ta sytuacja pokazała mi, że jest jeszcze dużo pracy przede mną, bo gdy aktywność fizyczna zostaje wykluczona z mojej codzienności, chcę wyrzucić z niej też jedzenie, mam ogromne wyrzuty sumienia. Uważam, że nie zasługuje na nie, że nie powinnam, skoro nie ćwiczę to nie mogę i jest to bezcelowe. 
+
+
+Nie chcę żyć dla ćwiczeń. Chcę ćwiczyć, żeby moje życie było przyjemniejsze. Więc z trudem ale zdecydowanie stawiam znak stop i stwierdzam, że ta sytuacja może pomóc mi w oddzieleniu grubą kreską jedzenia i ćwiczeń. Bo nie ważne ile ruszasz się w ciągu dnia, ile trenujesz, ile kroków robisz. Wciąż zasługujesz na odżywianie swojego ciała w takiej ilości, w jakiej potrzebujesz i tym, czym potrzebujesz. To Ty masz sprawczość w swoim życiu, a nie Twoje myśli. 
+W trudnych sytuacjach pomaga mi właśnie zauważenie tego, co mogę wyciągnąć dobrego z tego wydarzenia. Najłatwiej jest widzieć negatywy. Mogłabym przecież narzekać, że nie mogę chodzić, nie mogę leżeć, czuję ból, dlaczego akurat mi się to przytrafiło, dlaczego nie mogło być inaczej. I nie zrozumcie mnie źle, uważam, że nie ma nic złego w narzekaniu od czasu do czasu. Ale narzekanie przez powiedzmy tydzień o tym, jakie twoje życie jest do dupy nie zmieni zupełnie nic. Więc po co otaczać się taką negatywną energią? Na pewno nie pomoże ci to w poprawie nastroju i pozytywnym nastawieniu na ciężki czas. 
+Owszem, płakałam i to sporo. Płakałam, że nie mogę ćwiczyć i stracę formę. Płakałam, że będę musiała wysługiwać się innymi dookoła i nie będę mogła robić tego, co kocham. Płakałam i to bardzo. Dałam sobie czas na przeżycie smutku. Bo nie ma w tym nic zawstydzającego czy głupiego. Łzy nie są powodem do wstydu i mam nadzieję, że świadomość ludzi na ten temat będzie coraz większa. Liczę na to, że nie usłyszę już nigdy więcej słów takich jak “nie rycz, ryczą tylko bobasy”. Albo “Chłopaki nie płaczą”. Płacze każdy, kto chce przeżyć swoje emocje, kto jest świadomy swojego smutku. Jeśli ktoś ocenia Cię ze względu na wyrażanie swoich uczuć, to świadczy to jedynie o nim i jego słabościach. 
+
+
+Wracając ponownie do tematu.. Mogłabym użalać się nad sobą przez kolejne dni i nienawidzić siebie i swojego życia. Zamiast tego dokonałam wyboru. Chcę czerpać z ostatnich dni wakacji, korzystać z życia, nawet jeśli rzuca mi ono kłody pod nogi. Nie poddam się. Tak więc przez ostatnie dni robię to, na co mam ochotę i co jest w zakresie moich możliwości. Zdecydowanie musiałam wyjść z mojej strefy komfortu, o której pojawi się post już niedługo. Otworzyłam się na inne formy spędzania czasu wolnego niż te, które są dla mnie znane i bezpieczne. Podam Wam kilka przykładów. Zaczęłam kolorować, zarówno kredkami jak i pisakami. Ostatni raz pokolorowałam cokolwiek w może 4 klasie szkoły podstawowej, bo uważałam to za nudne i żmudne. Teraz kolorowanie jest dla mnie bardzo ciekawe i angażujące. Uczy mnie wytrwałości, gdy chcę rzucić kredkami bo szybko się dekoncentruję i nie widzę powodu, dla którego miałabym dokończyć rysunek. Zaczęłam też układać puzzle, zamówiłam nowe pudełka. Rozwiązuje krzyżówki, gram w dużo gier planszowych, oglądam seriale. Robię wszystko, co kiedyś było dla mnie “zakazane” bo wiązało się z biernością i mimo wszystko odpoczynkiem, skupieniem, byciu ze swoimi myślami. Jestem osobą zadaniową, lubię odhaczać kolejne punkty na liście, być ciągle w ruchu, wykonywać kolejne prace. Jest to zdecydowanie wyjście z mojej strefy komfortu, nie będę kłamać, czuję, że robię za mało, nie mogę się bardzo często skupić na tym, co robię, a myśli mnie przytłaczają. Ale nie poddaje się bo wiem, że z czasem te zajęcia będą dla mnie normalne i w zasięgu moich możliwości. Będę mogła wybrać, czy chcę iść na spacer, czy chcę leżeć i oglądać serial. Będę miała wybór i robię to dla przyszłej siebie. 
+Nie chce dzielić zajęć na zabronione i dozwolone, na lepsze i gorsze. Chcę mieć je wszystkie w głowie i wybrać cokolwiek, na co mam ochotę. Kolejna rzecz, której mogę się nauczyć i doświadczyć. 
+Zmianie uległy też moje kontakty z domownikami. Minęły dopiero 3 dni od mojego wypadku, a już zauważam ogromną zmianę. Widzę, że ludzie dookoła mnie opiekują się mną i są dla mnie zawsze, gdy tylko tego potrzebuje. Doceniam ich obecność, doceniam to, że starają się mi pomóc na tyle, na ile mogą. 
+Z drugiej strony takie sytuacje weryfikują to, kto jest dla mnie ze znajomych, kto w ogóle o mnie pamięta. 
+Wiele rzeczy poddane jest weryfikacji a ja po prostu pozwolę temu być i płynąć, bo takie jest życie. 
+
+
+Widzę, jak bardzo kocham moje zwierzęta i jak bardzo je doceniam. Czuję taką wdzięczność za ich obecność przy mnie w praktycznie każdej chwili. Dużo tu wdzięczności. Ale to właśnie dają trudne momenty. Nowe doświadczenia. 
+Już finalnie przekonałam się o tym, jak bardzo ważna jest komunikacja. W sytuacji, w której “jestem zdana” na ludzi dookoła mnie, muszę komunikować im swoje potrzeby. Muszę mówić, co bym chciała, w czym mogą mi pomóc. Bo jeśli tego nie powiemy, skąd oni mają o tym wiedzieć? To jest bardzo ciekawa kwestia, bo wydaje mi się, że często oczekujemy od ludzi pomocy, wysłuchania, zrozumienia, może przytulenia, wsparcia czy rozmowy. Oczekujemy ale nie komunikujemy swoich potrzeb. Później trzymamy drugą osobę na dystans, bo nie spełniła naszych oczekiwań, myślimy sobie “ale ona jest, nawet nie może przy mnie być ani mnie przytulić”. Ale czy powiedziałeś cokolwiek o tym, czego potrzebujesz? Podam Ci przykład komunikatu, który chciałabym usłyszeć od drugiej osoby, zamiast domyślać się tego, co akurat siedzi jej w głowie. Na przykład: “Słuchaj, dziś mam bardzo zły dzień jeśli chodzi o wygląd mojego ciała, czuję się niewystarczająca i to mnie dobija. Czy możemy spędzić ten wieczór razem? Potrzebuję wsparcia i bliskości”. Albo “Hej, możemy się dzisiaj spotkać? Potrzebuję się wygadać i przytulić”. Nie oczekuj, że ktoś będzie wiedział. Po prostu to powiedz. Nikt nie jest w stanie wejść do Twojej głowy, zgadnąć o co Ci chodzi. Nie mamy takiej supermocy. Ale za to posiadamy zmysł mowy, dzięki któremu możemy się porozumiewać i tworzyć zdrowe relacje z innymi ludźmi. h
+
+
+Życie jest bardzo przewrotne. Nigdy nie wiemy, czy będzie kolejny dzień. Dlatego proszę Cię, traktuj każdy dzień tak, jakby miał być Twoim ostatnim. I nie, nie chcę Cię straszyć ani wywierać na Tobie presji. Nie chcę, abyś wpadał w wir produktywności, bo nie wiadomo czy jutro będziesz żył/a. Chcę tylko, abyś codziennie znalazł w sobie choć odrobinę wdzięczności za podstawowe czynności życiowe. Doceń to, że możesz wstać z łóżka. Doceń to, że możesz iść odwiedzić babcię. Doceń to, że możesz sam się ubrać, ugotować sobie pyszne jedzenie. 
+Ja teraz też staram się znaleźć w sobie właśnie kroplę wdzięczności, choć nie będę udawać, jest to ciężkie. To kolejne wyzwanie, któremu chcę stawić czoło. 
+Moje wszystkie plany runęły w gruzach. Prawdopodobnie nie wrócę przez najbliższe 2 miesiące do szkoły, bo nie jestem w stanie wejść po schodach ani usiąść. Mieszkam na wsi, daleko od moich jakichkolwiek znajomych więc zapewne moje kontakty będą ograniczone. Nie powiem, mam w sobie trochę żalu, że nikomu nie zależy na mnie na tyle, aby odwiedzić mnie czy chociażby zadzwonić. Jednak na razie nie chcę wpaść w wielkie koło, jakim jest overthinking. Wiem, że jeśli zostanę z tą myślą, zaraz pojawią się kolejne, takie jak: “nikomu na Tobie nie zależy, nie masz nikogo, jesteś problemem, ludzie nie chcą się z Tobą przyjaźnić”. A w tym momencie nie mam w sobie przestrzeni, na rozprawienie z tymi myślami. Muszę skupić się na sobie i swoim zdrowiu. 
+
+
+To wszystko na dziś, dziękuję Ci za przeczytanie tego wpisu, życzę Ci miłego dnia. 
+
+Będzie mi bardzo miło, jeśli podzielisz się ze mną jakimkolwiek komentarzem, czy to na instagramie czy to na e-mailu.
+
+Do usłyszenia! 
+xx
