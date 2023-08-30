@@ -1,5 +1,5 @@
 +++
-title="Życie jest przewrotne..."
+title="Życie jest przewrotne"
 description="O tym, jak niespodziewanie nasze życie może zmienić się o 180 stopni i jak bardzo ważna jest wdzięczność za to, co mamy. Opowiem Wam o moich spostrzeżeniach oraz emocjach, które w tej chwili przeżywam. Zapraszam:)"
 date=2023-08-29
 draft=false
@@ -54,4 +54,3 @@ To wszystko na dziś, dziękuję Ci za przeczytanie tego wpisu, życzę Ci miłe
 Będzie mi bardzo miło, jeśli podzielisz się ze mną jakimkolwiek komentarzem, czy to na instagramie czy to na e-mailu.
 
 Do usłyszenia! 
-xx
