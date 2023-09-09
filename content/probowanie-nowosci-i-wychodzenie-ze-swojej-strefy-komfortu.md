@@ -1,5 +1,5 @@
 +++
-title="Próbowanie nowości i wychodzenie ze swojej komfortu"
+title="Próbowanie nowości i wychodzenie ze strefy komfortu"
 description="Dzięki rozmaitym rutynom, nasze życie jest spokojne, poukładane i bezpieczne. Ale czy codzienna rutyna nie ogranicza naszego szczęścia? Zapraszam :)"
 date=2023-09-09
 draft=false
