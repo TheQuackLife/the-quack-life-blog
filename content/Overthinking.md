@@ -1,6 +1,6 @@
 +++
 title="Overthinking"
-description="W tym poście dzielę się moimi przemyśleniami na temat overthinkingu, czyli tzw ciągłej analizy, która ostatnio dość mocno mnie dotyczy. Skąd bierze się overthinking? Jak ja go zauważam? I jak zaczynam sobie z nim radzić? Zapraszam
+description="W tym poście dzielę się moimi przemyśleniami na temat overthinkingu, czyli tzw ciągłej analizy, która ostatnio dość mocno mnie dotyczy. Skąd bierze się overthinking, jak ja go zauważam i jak zaczynam sobie z nim radzić? Zapraszam"
 date=2024-06-22
 draft=false
 +++
