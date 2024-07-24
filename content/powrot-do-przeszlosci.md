@@ -1,7 +1,7 @@
 +++
 title="Powrót do przeszłości"
-description="Hej wszystkim! Dziś chciałabym opisać wam moje “zmagania z przeszłością”. Jak staram się ją zaakceptować, jak powraca do mnie w każdej dziedzinie mojego życia i jak bardzo kształtuje nas, jako ludzi. Dziś podzielę się z wami kawałkiem mojej historii, moich doświadczeń. Zaznaczam, że poruszam tematy związane z ed, więc jeśli jest to dla ciebie ciężki/wrażliwy temat, nie czytaj tego wpisu.
-"
+description="Hej wszystkim! Dziś chciałabym opisać wam moje “zmagania z przeszłością”. Jak staram się ją zaakceptować, jak powraca do mnie w każdej dziedzinie mojego życia i jak bardzo kształtuje nas, jako ludzi. Dziś podzielę się z wami kawałkiem mojej historii, moich doświadczeń. Zaznaczam, że poruszam tematy związane z ed, więc jeśli jest to dla ciebie ciężki/wrażliwy temat, nie czytaj tego wpisu."
+
 date=2024-07-24
 draft=false
 +++
