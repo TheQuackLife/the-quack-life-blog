@@ -1,6 +1,6 @@
 +++
-title="Lubie swoje życie"
-description="Moje przemyślenia na temat lubienia swojego życia oraz poczucia szczęścia."
+title="Lubię swoje życie"
+description="Moje przemyślenia na temat lubienia swojego życia oraz poczucia szczęścia. Jak bardzo pragniemy zyskać akceptację, gonimy za miłoscią, która powinna być bezwarunkowa. Czyli bardzo dużo moich realizacji. Zapraszam :33"
 date=2024-08-15
 draft=false
 +++
