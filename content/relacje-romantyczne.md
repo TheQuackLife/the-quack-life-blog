@@ -1,6 +1,6 @@
 +++
 title="Relacje romantyczne"
-description="Moje przemyślenia na temat relacji romantycznych, jak ogromny wpływ na te relacje ma dzieciństwo, o lęku przed byciem dodatkowym "bagażem", rozmowie i walidacji. Zapraszam! :3"
+description="Moje przemyślenia na temat relacji romantycznych, jak ogromny wpływ na te relacje ma dzieciństwo, o lęku przed byciem dodatkowym bagażem, rozmowie i walidacji. Zapraszam! :3"
 date=2024-05-10
 draft=false
 +++
