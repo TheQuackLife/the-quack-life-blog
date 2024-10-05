@@ -1,12 +1,12 @@
 +++
 title="Relacje romantyczne"
-description="Moje przemyślenia na temat relacji romantycznych, jak ogromny wpływ na te relacje ma dzieciństwo, o lęku przed byciem dodatkowym "bagażem", rozmowie i walidacji. Zapraszam! :3  "
+description="Moje przemyślenia na temat relacji romantycznych, jak ogromny wpływ na te relacje ma dzieciństwo, o lęku przed byciem dodatkowym "bagażem", rozmowie i walidacji. Zapraszam! :3"
 date=2024-05-10
 draft=false
 +++
 
 
-Hejołka! W dzisiejszym wpisie chciałabym podzielić się z wami moimi przemyśleniami na temat relacji romantycznych. Ten temat ostatnimi czasy bardzo mnie interesuje, jak i bezpośrednio dotyczy :)). Opowiem o szukaniu miłości, stawianiu siebie na pierwszym miejscu oraz wielu przyjemnych jak i trudnych do przeżywania emocjach. Zapraszam!
+Hejołka! W dzisiejszym wpisie chciałabym podzielić się z wami moimi przemyśleniami na temat relacji romantycznych. Ten temat ostatnimi czasy bardzo mnie interesuje, jak i bezpośrednio dotyczy. Opowiem o szukaniu miłości, stawianiu siebie na pierwszym miejscu oraz wielu przyjemnych jak i trudnych do przeżywania emocjach. Zapraszam!
 
 Zacznę od tego, że osobiście nigdy w moim życiu nie miałam do czynienia z relacją romantyczną, dopóki nie poznałam mojego ówczesnego chłopaka 3 miesiące temu. Od kiedy pamiętam powtarzałam ciągle jedno i to samo “nie, nie mam i nie będę miała chłopaka, to nie dla mnie, nie potrzebuję tego, jestem niezależna i sama dam sobie ze wszystkim radę”. Byłam w tej kwestii taką zosią samosią. Ale wydaje mi się, że moja niechęć do nawiązywania takich relacji miała swoje źródła. 
 
