@@ -6,7 +6,7 @@ draft=false
 +++
 
 
-Hello hello!
+Hello hello!!
 Witam was serdecznie ponownie. Od ostatniego wpisu bardzo dużo się zadziało w moim życiu i chciałabym się z wami tym podzielić. Opisać przemyślenia, emocje. Zapraszam na moje uzewnętrznianie się :3
 
 
