@@ -2,7 +2,7 @@
 title="Nie chcę tu być"
 description="Siema, przyszłam się wyżalić, bo tak jest trochę łatwiej. Nie ma tu żadnych rozwiązań, porad, konkretnego tematu. To po prostu moje aktualne emocje i przeżycia."
 date=2024-10-06
-draft=false
+draft=true
 +++
 
 
